@@ -1,2 +1,6 @@
 # hello-world
-My First Repository Bitches
+$@%$%^$@^@^%$^@^%$
+
+WHAT IS UP!!!!
+
+IM DOING YOU UP A README READ IT OR ELSE!!!
